@@ -1,1 +1,0 @@
-# smoothsa_rebuttal
